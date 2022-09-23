@@ -1,1 +1,1 @@
-bikin fitur soalbelum jadi jadi
+mayan untuk hari ini
